@@ -1,9 +1,9 @@
 # Ustawa z dnia ………. 2023 roku o podatku dochodowym od kapitałów pieniężnych
 
 ## Rozdział 1 - *Przepisy ogólne*
-
-### Art. 1. [zakres]
-
+wrkhbsdmf lkbhgb fjd,
+###*# Art. 1. [zakres]
+kjn gdkj.gnfdkgjndfkj.ngfk.jn;kdk
 1. Ustawa reguluje opodatkowanie dochodów (przychodów) uzyskanych przez osoby fizyczne z kapitałów pieniężnych.
 1. Przepisy ustawy stosuje się z uwzględnieniem umów w sprawie unikania podwójnego opodatkowania, których stroną jest Rzeczpospolita Polska.
 1. Zastosowanie stawki podatku wynikającej z właściwej umowy o unikaniu podwójnego opodatkowania lub niepobranie (niezapłacenie) podatku zgodnie z taką umową jest możliwe pod warunkiem udokumentowania dla celów podatkowych miejsca zamieszkania podatnika uzyskanym od niego certyfikatem rezydencji.
